@@ -5,4 +5,4 @@
 <div align="center">
 <img width="600" height="600" alt="image_2026-02-09_182324753" src="https://github.com/user-attachments/assets/b4ccc0e3-e1e9-4224-8108-bacd61ae0554" />  
   
-  [strawpage](https://flinluga.straw.page/) ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  [pronouns](https://pronouns.cc/@faelight) ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  [atabook](https://phainaxa.atabook.org) 
+  [rentry](https://rentry.co/bpdelysia) ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  [pronouns](https://pronouns.cc/@faelight) ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  [atabook](https://phainaxa.atabook.org) 
