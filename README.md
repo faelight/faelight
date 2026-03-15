@@ -5,4 +5,4 @@
 <div align="center">
 <img width="600" height="600" alt="image_2026-02-27_190344471" src="https://github.com/user-attachments/assets/32faf5b9-f9d7-4a43-b712-58937ce653db" />
   
-  [rentry](https://rentry.co/bpdelysia) ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  [pronouns](https://pronouns.cc/@faelight) ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  [atabook](https://phainaxa.atabook.org) 
+  [rentry](https://rentry.co/baptism-of-fire) ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  [pronouns](https://pronouns.cc/@faelight) ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  [atabook](https://phainaxa.atabook.org) 
