@@ -1,9 +1,9 @@
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=detectmylove&label=wizards&style=plastic&color=ec33ac" </p>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=detectmylove&label=stars&style=plastic&color=e8aab3" </p>
 
-  [![My Last.fm](https://lastfm-recently-played.vercel.app/api?user=meltdwn&count=1&show_user=header&header_size=normal_stats_only&loved=true&loved_style=2&width=1000&bg_color=22131d)](https://www.last.fm/user/meltdwn)
+  [![My Last.fm](https://lastfm-recently-played.vercel.app/api?user=meltdwn&count=1&show_user=header&header_size=normal_stats_only&loved=true&loved_style=2&width=1000&bg_color=131e25)](https://www.last.fm/user/meltdwn)
   
 <div align="center">
   
-![y](https://i.postimg.cc/zXCJV3YG/heath.png)
+![y](https://i.postimg.cc/4yKmpDSW/louter.png)
 
   [rentry](https://rentry.co/murakvmo) ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  [pronouns](https://pronouns.cc/@faelight) ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  [atabook](https://phainaxa.atabook.org) 
