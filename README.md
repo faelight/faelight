@@ -4,7 +4,7 @@
   
 <div align="center">
   
-<img src="https://i.postimg.cc/Hk9njM6n/camille.png" width="700" />
+<img src="https://i.postimg.cc/Hk9njM6n/camille.png" width="600" />
 
   [rentry](https://rentry.co/murakvmo) ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  [pronouns](https://pronouns.cc/@faelight) ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  [atabook](https://phainaxa.atabook.org) 
 
