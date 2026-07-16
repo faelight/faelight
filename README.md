@@ -4,7 +4,7 @@
   
 <div align="center">
   
-<img src="https://i.postimg.cc/ncLJNdz6/hecate.png" width="550" />
+<img src="https://i.postimg.cc/3NgxVYPQ/hecate.png" width="550" />
 
 #####  [rentry](https://rentry.co/murakvmo) ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  [pronouns](https://pronouns.cc/@faelight) ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  [atabook](https://phainaxa.atabook.org) 
 
