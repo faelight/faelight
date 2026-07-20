@@ -6,5 +6,5 @@
   
 <img src="https://i.postimg.cc/3NgxVYPQ/hecate.png" width="550" />
 
-#####  [rentry](https://rentry.co/murakvmo) ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  [pronouns](https://pronouns.cc/@faelight) ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  [atabook](https://phainaxa.atabook.org) 
+#####  [rentry](https://rentry.co/murakvmo) ‎  ‎  ‎  ‎  ‎  ‎  ‎ ‎   ‎ ‎  [prns](https://pronouns.cc/@faelight) ‎    ‎ ‎ ‎   ‎  ‎ ‎  ‎  ‎  ‎ [ata](https://phainaxa.atabook.org) ‎  ‎ ‎  ‎   ‎ ‎ ‎   ‎   ‎  ‎ [♡](https://github.com/asterroids)
 
