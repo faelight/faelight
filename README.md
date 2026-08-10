@@ -4,7 +4,7 @@
   
 <div align="center">
   
-<img src="https://i.postimg.cc/3xmLbLwg/nunu.png" width="550" />
+<img src="https://i.postimg.cc/3xmLbLwg/nunu.png" width="350" />
 
 #####  [rentry](https://rentry.co/murakvmo) ‎  ‎  ‎  ‎  ‎  ‎  ‎ ‎   ‎ ‎  [prns](https://pronouns.cc/@faelight) ‎    ‎ ‎ ‎   ‎  ‎ ‎  ‎  ‎  ‎ [ata](https://phainaxa.atabook.org) ‎  ‎ ‎  ‎   ‎ ‎ ‎   ‎   ‎  ‎ [♡](https://github.com/asterroids)
 
