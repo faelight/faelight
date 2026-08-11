@@ -6,5 +6,5 @@
   
 <img src="https://i.postimg.cc/3xmLbLwg/nunu.png" width="300" />
 
-#####  [rentry](https://rentry.co/murakvmo) ‎  ‎  ‎  ‎  ‎  ‎  ‎ ‎   ‎ ‎  [prns](https://pronouns.cc/@faelight) ‎    ‎ ‎ ‎   ‎  ‎ ‎  ‎  ‎  ‎ [ata](https://phainaxa.atabook.org) ‎  ‎ ‎  ‎   ‎ ‎ ‎   ‎   ‎  ‎ [♡](https://github.com/asterroids)
+#####  [rentry](https://rentry.co/murakvmo) ‎  ‎  ‎  ‎  ‎  ‎  ‎ ‎   ‎ ‎  [prns](https://pronouns.cc/@faelight/phanuel) ‎    ‎ ‎ ‎   ‎  ‎ ‎  ‎  ‎  ‎ [ata](https://phainaxa.atabook.org) ‎  ‎ ‎  ‎   ‎ ‎ ‎   ‎   ‎  ‎ [♡](https://github.com/asterroids)
 
